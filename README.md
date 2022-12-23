@@ -1,1 +1,1 @@
-# online-yoga-centre
+# Online-Yoga-Centre
